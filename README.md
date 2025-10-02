@@ -1,3 +1,2 @@
-# PHP-Code-s
-PHP 
-hazhin yahya
+PHP CODE
+HOPE YOU ENJOY
